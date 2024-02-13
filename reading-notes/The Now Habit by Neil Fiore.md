@@ -87,3 +87,45 @@
     * Understand underlying causes of procrastination;
     * Develop alternative tools to cope with your fears, make work less painful and less depriving;
     * Make work more enjoyable, and make the quality and pleasure of leisure time greater than what you can ever achieve by procrastinating.
+
+## Chapter 2: How We Procrastinate
+
+### Knowing how you spent your time
+
+* Observe where your time is going. Record the amount of time spent on your work and life. Create a schedule.
+* Categorize your activities:
+    * A: Most important
+    * B: Important
+    * C: Least important
+* Urgent things are not always the best uses of our time.
+* Keep recording for a few days so that you have a better estimate on how you spent on your time. Review how you spent your time. Then you can find areas of improvement – reducing time on unimportant activities.
+    * Example: Get out of bed immediately; spend less time on breakfast; eliminate time spent on TV in the morning and evening when you are pressed for time.
+    * Example: If you are a person taking long time to "settle in" before getting started, make conscious choices when you enter the office in the morning.
+* Most of the time you spent are not directly related to high-priority tasks. Look for areas of improvement and gain greater control over interruptions and lost time.
+
+### Procrastination logs
+
+* Keeping a record of how you spent your time will alert you how you inefficiently used your time, but it will not provide cues for you in actual work situation that need a change in your focus if you want to avoid falling back to your old behavior.
+* By _recording_ your current behavior and thoughts, you can know where to take corrective actions. Otherwise you are unable to learn from your past mistakes. The **procrastination log** provides as system that is easier for you to gain control of your time and your behavior patterns.
+* Your procrastination log can alert you to the _types_ of situations in which you are most likely to procrastinate. Examples:
+    1. Detail activities
+    2. Home chores
+    3. Performance tasks
+    4. Big or dense projects
+* Identify the fears and pressures you typically associate with certain types of projects. The procrastination logs can show you how it helps or hinders your goal achievement. Awareness of the inner dialogue about how it connects to your procrastination patterns will let you make use of the now habit strategy.
+
+### Creating safety: the first major step out of procrastination
+
+* Your mind often changes when you face some kind of danger, depending on whether the danger is immediate and real or just possible. Procrastination usually occurs when you use fear to cover up yourself from the pressure of a real deadline.
+* Procrastination and anxiety works in five stages:
+    1. You give a task or a goal the power to determine your worth and happiness;
+    2. You use perfectionism to put yourself in a situation where a single mistake will result in the _end of the world_;
+    3. You find yourself of _frozen with anxiety_;
+    4. You then use procrastination to escape the dilemma between _the immediate, and frightening_ **fear of failure** when doing the work, and the _higher level of anxiety_ from **time pressure of deadlines**;
+    5. You then use a **real threat** such as fire or deadline to release yourself and perfectionism and to act as a motivator.
+
+> If you maintain perfectionist standards, then failing to achieve your goals or making a mistake can feel as if you're going to die. But maybe your job, your relationship, or your home is so important to you that losing it would feel like the end of the world. If so, you'll want to know how to create alternatives that allow you to bounce back from your natural procrastination patterns.
+>
+> **In order to maximize your performance in a stressful world, you must create a protected and indisputable sense of worth for yourself.** Until you do, energy and concentration will be drained from work and put into preparing for imagined threats to your survival, and into procrastination as a means of coping.
+>
+> If you are threatening yourself with self-hatred and a life of unhappiness unless you achieve your goal, it's impossible to concentrate on the work in front of you now. **You must have some sort of protection from these self-imposed threats. Your healthy survival response (commonly thought of as stress) will not stop until you are safe.** You need a commitment to yourself and your innate worth that lets you know that, in spite of any failures, you believe in yourself enough to **try again, to get back on this board** – or some other board more suited to your unique talents.
