@@ -55,13 +55,13 @@
 
 ### Procrastination is rewarding
 
-* Many ways delaying is used to solve problems:
+* ❗ Many ways delaying is used to solve problems:
     * Make postponed tasks completed by someone else
     * Hesitant on buying something – the item is eventually going on sale or going out of style
     * Procrastination often goes unpunished
     * Cool down to avoid serious arguments with parents, teachers, bosses, and friends
     * Difficult problems often resolve by themselves if you wait for additional information of allow opportunities to pass
-* The pernicious cycle:
+* ❗ The pernicious cycle:
 
     > Perfectionistic demands lead to → fear of failure → **procrastination** → self-criticism → anxiety and depression → loss of confidence → greater fear of failure which leads to → stronger need to use **procrastination** as a temporary escape
 
@@ -70,7 +70,7 @@
         1. as an indirect way of resisting pressure from authorities;
         2. as a way of lessening fear of failure by providing an excuse for a disappointing, less-than-perfect performance;
         3. and as a defense against fear of success by keeping us from doing our best.
-* Procrastination is usually not the problem itself, but rather a symptom of other underlying problems.
+* ❗ Procrastination is usually not the problem itself, but rather a symptom of other underlying problems.
     * **Procrastination can express resentment**
         * You are aware of the consequence of anger and punishment from powerful authorities.
         * If you are in a one-down position — a student, a subordinate, a private in the army — procrastination may be the safest way to exercise some power and control over your life.
@@ -92,32 +92,32 @@
 
 ### Knowing how you spent your time
 
-* Observe where your time is going. Record the amount of time spent on your work and life. Create a schedule.
-* Categorize your activities:
+* ✅ Observe where your time is going. Record the amount of time spent on your work and life. Create a schedule.
+* ✅ Categorize your activities:
     * A: Most important
     * B: Important
     * C: Least important
-* Urgent things are not always the best uses of our time.
-* Keep recording for a few days so that you have a better estimate on how you spent on your time. Review how you spent your time. Then you can find areas of improvement – reducing time on unimportant activities.
+* ❗ Urgent things are not always the best uses of our time.
+* ✅ Keep recording for a few days so that you have a better estimate on how you spent on your time. Review how you spent your time. Then you can find areas of improvement – reducing time on unimportant activities.
     * Example: Get out of bed immediately; spend less time on breakfast; eliminate time spent on TV in the morning and evening when you are pressed for time.
     * Example: If you are a person taking long time to "settle in" before getting started, make conscious choices when you enter the office in the morning.
-* Most of the time you spent are not directly related to high-priority tasks. Look for areas of improvement and gain greater control over interruptions and lost time.
+* ❗ Most of the time you spent are not directly related to high-priority tasks. Look for areas of improvement and gain greater control over interruptions and lost time.
 
 ### Procrastination logs
 
-* Keeping a record of how you spent your time will alert you how you inefficiently used your time, but it will not provide cues for you in actual work situation that need a change in your focus if you want to avoid falling back to your old behavior.
-* By _recording_ your current behavior and thoughts, you can know where to take corrective actions. Otherwise you are unable to learn from your past mistakes. The **procrastination log** provides as system that is easier for you to gain control of your time and your behavior patterns.
-* Your procrastination log can alert you to the _types_ of situations in which you are most likely to procrastinate. Examples:
+* ❗Keeping a record of how you spent your time will alert you how you inefficiently used your time, but it will not provide cues for you in actual work situation that need a change in your focus if you want to avoid falling back to your old behavior.
+* ❗By _recording_ your current behavior and thoughts, you can know where to take corrective actions. Otherwise you are unable to learn from your past mistakes. The **procrastination log** provides as system that is easier for you to gain control of your time and your behavior patterns.
+* ❗Your procrastination log can alert you to the _types_ of situations in which you are most likely to procrastinate. Examples:
     1. Detail activities
     2. Home chores
     3. Performance tasks
     4. Big or dense projects
-* Identify the fears and pressures you typically associate with certain types of projects. The procrastination logs can show you how it helps or hinders your goal achievement. Awareness of the inner dialogue about how it connects to your procrastination patterns will let you make use of the now habit strategy.
+* ✅ Identify the fears and pressures you typically associate with certain types of projects. The procrastination logs can show you how it helps or hinders your goal achievement. Awareness of the inner dialogue about how it connects to your procrastination patterns will let you make use of the now habit strategy.
 
 ### Creating safety: the first major step out of procrastination
 
-* Your mind often changes when you face some kind of danger, depending on whether the danger is immediate and real or just possible. Procrastination usually occurs when you use fear to cover up yourself from the pressure of a real deadline.
-* Procrastination and anxiety works in five stages:
+* ❗ Your mind often changes when you face some kind of danger, depending on whether the danger is immediate and real or just possible. Procrastination usually occurs when you use fear to cover up yourself from the pressure of a real deadline.
+* ❗ Procrastination and anxiety works in five stages:
     1. You give a task or a goal the power to determine your worth and happiness;
     2. You use perfectionism to put yourself in a situation where a single mistake will result in the _end of the world_;
     3. You find yourself of _frozen with anxiety_;
@@ -134,10 +134,10 @@
 
 ### Counterproductive messages
 
-* When we speak to ourselves in an authoritarian voice, it indicates that we feel pressure to do something, and that while one part of ourselves is applying the pressure, the other part does not want to do it. Such self-alienation and subconscious message of such self-talk leads to inner conflict and procrastination of ourselves.
-* To heal self-alienation and inner conflict between the authoritarian voice and rebel, we have to learn a language that removes such conflict and gains power over ourselves.
+* ❗ When we speak to ourselves in an authoritarian voice, it indicates that we feel pressure to do something, and that while one part of ourselves is applying the pressure, the other part does not want to do it. Such self-alienation and subconscious message of such self-talk leads to inner conflict and procrastination of ourselves.
+* ✅ To heal self-alienation and inner conflict between the authoritarian voice and rebel, we have to learn a language that removes such conflict and gains power over ourselves.
 * Counterproductive messages drive you away from the positive direction towards what you _want, decide, or choose_ to do.
-    * Counterproductive messages:
+    * ❌ Counterproductive messages:
         * **The "have to's"** – messages of stress
             * You don't want to do something and you feel that external forces are pushing you towards doing them.
             * A "have to" statement communicates to your subconscious mind:
@@ -158,20 +158,20 @@
                 | **Should be like him/her** | A person you envy or admire | A bad, inadequate self |
                 | **Should be there** | An imagined blissful future | Where you are now |
 
-    * "Have to's: and "should do's" do not communicate to the mind and body a clear picture of:
+    * ❌ "Have to's: and "should do's" do not communicate to the mind and body a clear picture of:
 
         > * _What you choose_ to do
         > * _When you choose_ to do it
         > * _Where you choose_ to start it
         > * _How you choose_ to do it
-* As you speak to yourself in a language focusing on results rather than blame, on choice rather than _have to_, on _what is_ rather than what you think _should be_, you feel that your mind and body cooperate by providing positive energy that release you from the unnecessary struggles of the past and negative comparisons with the future.
+* ✅ As you speak to yourself in a language focusing on results rather than blame, on choice rather than _have to_, on _what is_ rather than what you think _should be_, you feel that your mind and body cooperate by providing positive energy that release you from the unnecessary struggles of the past and negative comparisons with the future.
 
 ### The Power of Choice
 
-* **From resistance to commitment**
+* ✅ **From resistance to commitment**
     * You don't have to _want_ or _love_ to do the task, but if you prefer it to the consequences of not doing it, you can decide to _commit_ it wholeheartedly.
-    * **Since you made a mature commitment to the task rather than arguing against it, you may as well be self-nurturing to make it as pleasant as possible.**
-* **Learning how to say no**
+    * ✅ **Since you made a mature commitment to the task rather than arguing against it, you may as well be self-nurturing to make it as pleasant as possible.**
+* ✅ **Learning how to say no**
     * For procrastinators, saying "no" is a powerful tool for exercising choice.
     * "No" can be used assertively and non-defensively:
 
@@ -179,12 +179,12 @@
         > * "No, I am not as quick as you, and I want time to give it the thoughtful consideration it deserves."
         > * "No, I would rather have a contract with terms I know I can wholeheartedly embrace than endanger the quality of my work by compromising."
         > * "No, I will not be paying that bill now, and I'm willing to pay for the privilege by incurring your interest charges."
-    * **Developing fresh alternative self-statements that involve choice, commitment, and the ability to say no is an essential step toward having a greater range of possibilities in working on any task and in changing from a procrastinator to an effective producer.**
+    * ✅ **Developing fresh alternative self-statements that involve choice, commitment, and the ability to say no is an essential step toward having a greater range of possibilities in working on any task and in changing from a procrastinator to an effective producer.**
 
 ### Five self-statements that distinguish procrastinators from producers
 
-* As you switch from the old, negative thinkings to the new and positive thinkings, the old ones will atrophy, and the new ones will become strengthen and easier to start with.
-* Practice shifting to the effective self-talks of producers. You can place them everywhere most visible and accessible to you.
+* ✅ As you switch from the old, negative thinkings to the new and positive thinkings, the old ones will atrophy, and the new ones will become strengthen and easier to start with.
+* ✅ Practice shifting to the effective self-talks of producers. You can place them everywhere most visible and accessible to you.
 
     | # | Negative thinking of… | → | Replace with… |
     |---|-----------------------|---|---------------|
