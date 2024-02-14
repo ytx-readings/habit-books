@@ -193,3 +193,49 @@
     | 3 | "This project is so big and important" | → | "I can take one small step" |
     | 4 | "I must be perfect" | → | "I can be perfectly human" |
     | 5 | "I don't have time to play" | → | "I must take time to play" |
+
+## Chapter 4: Guilt-Free Play, Quality Work
+
+* Most tragic form of procrastination – **putting off living**
+    * ❌ Keeps us from completing the most important tasks in life;
+    * ❌ Lessens our respect for ourselves by keeping use in destructive, delaying tactics such as overeating, excessive TV watching, the investment of time and money in a succession of halfhearted and rapidly abandoned hobbies and schemes.
+* ❗ Both workaholics and procrastinators tend to:
+    * See themselves as always **burdened by incomplete work**
+    * Thinking the lives of themselves as "**being on hold**" hoping that someday they will be organized enough to enjoy life
+    * View human beings as lazy and requiring pressure in order to create motivation
+    * Maintain negative attitudes toward work
+* ❗ **Both workaholics and procrastinators are either working or feeling guilty about not working.**
+
+### The importance of play
+
+* **Guilt-free play** is essential to attaining quality work and minimizing procrastination. When you apply this strategy, you learn to _play more and complete more quality work_.
+* ❌ Long-term procrastinators _suffered more_ when they take a long time to complete their work. They:
+    * Saw themselves as always working
+    * Thought of their lives as "being on hold"
+    * Felt that work required deprivation and sacrifice
+    * Felt guilty if they spent time with their friends or in leisure activities
+* ✅ On the other hand, those who made good progress and completed their goals timely were dedicated and committed to their _leisure time_.
+    * They had to swim, run, or dance almost every day.
+    * They met with friends frequently on dinners.
+    * They _recreate_ themselves to keep them motivated and interested in returning to their projects.
+* ❗ One reason we procrastinate is that we fear the we have no time to play once we start working, and that work will deprive us of the pleasure of play and the enjoyment of life. **Guilt-free play offers you an alternative way that it insists you to schedule recreation time in your weekly schedule. Making play a priority in your life is an important way to overcome procrastination and to enjoy life more.**
+* ❗ Adults usually think of play as being separate from learning and work. But play is an essential part of every child's development and learning about work, **allowing them to learn the physical, mental and social skills necessary for adult life**.
+* ✅ **Guilt-free play can revive your early excitement about learning, problem-solving, and participating in challenging activities.**
+
+### The pull method of self-motivation
+
+* ❗ **Push method** – stimulate actions through fear and punishment.
+    * Action produced by punishment does not directed towards the goal, but directed towards escaping the fear.
+    * The push method assumes that humans are lazy and scaring the hell out of them may create motivation.
+* ✅ **Pull method** – stimulate actions through rewards and achievements.
+    * The pull method assumes that we are naturally inquisitive, and if we are properly rewarded for our efforts we can persevere with even the most difficult tasks.
+    * The pull method recognize that _distant and indefinite_ rewards have very little power to motivate a person to continually face difficult, overwhelming tasks.
+    * ❗ There is a low chance you will start working on a task if the immediate results are isolation and pain, and the rewards are distant and uncertain. Chances of choosing this kind of activities are even slimmer.
+    * ✅ Finding some time to do things you really love to do can lessen the sense of burden and deprivation from working.
+
+### From guilt-free play to quality work
+
+* ✅ **Enjoying guilt-free play leads to you to higher levels of quality, creative work.**
+* Once you have completed some quality work, your feeling of self-control increases, and your capacity to enjoy _quality, guilt-free play_ grows. The seeds of earlier work also flourish subconsciously into new ideas and breakthroughs. You then become better rested, inspired, and ready for _greater quality work_.
+* As you include guilt-free play among your tools for overcoming procrastination, you will find that insights come to you throughout your day.
+* ✅ Emphasizing the importance of play does not deny the need of work and perseverance. It recognizes the importance of work, but it also recognizes play as a _commitment to a mission_ that focuses your energies and brings about inner harmony, a commitment that comes from a pull _toward_ a goal, and an excitement about the process of getting there.
