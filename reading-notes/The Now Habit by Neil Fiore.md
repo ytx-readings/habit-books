@@ -33,7 +33,7 @@
 
 ## Chapter 1: Why We Procrastinate
 
-### Warning signs of procrastination
+### Warning Signs of Procrastination
 
 1. Long series of obligations that cannot be met
 2. Unrealistic about time
@@ -42,26 +42,26 @@
 5. Indecisive and afraid of being criticized for mistakes
 6. Low self-esteem and lack of assertiveness
 
-### Why we procrastinate
+### A Positive View of the Human Spirit
 
 * ❌ Procrastination is not from laziness, disorganization or other character defect.
 * ✅ Procrastination is a mechanism **self-defending**: the **fear of failure**, the **fear of being imperfect (perfectionism)**, and the **fear of impossible expectations (being overwhelmed)** that prevent us from acting on and attaining humanly possible goals and relationships.
 
-### Our worst critics are ourselves
+### Our Worst Critics: Ourselves
 
 * In childhood we are often criticized that we are _ever good enough_. We faced criticism or constructive feedback for parents.
 * This leeds to low self-esteem and negative attitudes towards work.
 * ✅ We have to reconstruct our confidence and get rid of our worst critic: _ourselves_. By doing this we can lessen resistance to authority, fear of failure, perfectionism, and fear of success.
 
-### Procrastination is rewarding
+### Procrastination is Rewarding
 
-* Many ways delaying is used to solve problems:
+* ❗ Many ways delaying is used to solve problems:
     * Make postponed tasks completed by someone else
     * Hesitant on buying something – the item is eventually going on sale or going out of style
     * Procrastination often goes unpunished
     * Cool down to avoid serious arguments with parents, teachers, bosses, and friends
     * Difficult problems often resolve by themselves if you wait for additional information of allow opportunities to pass
-* The pernicious cycle:
+* ❗ The pernicious cycle:
 
     > Perfectionistic demands lead to → fear of failure → **procrastination** → self-criticism → anxiety and depression → loss of confidence → greater fear of failure which leads to → stronger need to use **procrastination** as a temporary escape
 
@@ -70,7 +70,7 @@
         1. as an indirect way of resisting pressure from authorities;
         2. as a way of lessening fear of failure by providing an excuse for a disappointing, less-than-perfect performance;
         3. and as a defense against fear of success by keeping us from doing our best.
-* Procrastination is usually not the problem itself, but rather a symptom of other underlying problems.
+* ❗ Procrastination is usually not the problem itself, but rather a symptom of other underlying problems.
     * **Procrastination can express resentment**
         * You are aware of the consequence of anger and punishment from powerful authorities.
         * If you are in a one-down position — a student, a subordinate, a private in the army — procrastination may be the safest way to exercise some power and control over your life.
@@ -90,34 +90,34 @@
 
 ## Chapter 2: How We Procrastinate
 
-### Knowing how you spent your time
+### Knowing How You Spend Your Time
 
-* Observe where your time is going. Record the amount of time spent on your work and life. Create a schedule.
-* Categorize your activities:
+* ✅ Observe where your time is going. Record the amount of time spent on your work and life. Create a schedule.
+* ✅ Categorize your activities:
     * A: Most important
     * B: Important
     * C: Least important
-* Urgent things are not always the best uses of our time.
-* Keep recording for a few days so that you have a better estimate on how you spent on your time. Review how you spent your time. Then you can find areas of improvement – reducing time on unimportant activities.
+* ❗ Urgent things are not always the best uses of our time.
+* ✅ Keep recording for a few days so that you have a better estimate on how you spent on your time. Review how you spent your time. Then you can find areas of improvement – reducing time on unimportant activities.
     * Example: Get out of bed immediately; spend less time on breakfast; eliminate time spent on TV in the morning and evening when you are pressed for time.
     * Example: If you are a person taking long time to "settle in" before getting started, make conscious choices when you enter the office in the morning.
-* Most of the time you spent are not directly related to high-priority tasks. Look for areas of improvement and gain greater control over interruptions and lost time.
+* ❗ Most of the time you spent are not directly related to high-priority tasks. Look for areas of improvement and gain greater control over interruptions and lost time.
 
-### Procrastination logs
+### The Procrastination Log
 
-* Keeping a record of how you spent your time will alert you how you inefficiently used your time, but it will not provide cues for you in actual work situation that need a change in your focus if you want to avoid falling back to your old behavior.
-* By _recording_ your current behavior and thoughts, you can know where to take corrective actions. Otherwise you are unable to learn from your past mistakes. The **procrastination log** provides as system that is easier for you to gain control of your time and your behavior patterns.
-* Your procrastination log can alert you to the _types_ of situations in which you are most likely to procrastinate. Examples:
+* ❗Keeping a record of how you spent your time will alert you how you inefficiently used your time, but it will not provide cues for you in actual work situation that need a change in your focus if you want to avoid falling back to your old behavior.
+* ❗By _recording_ your current behavior and thoughts, you can know where to take corrective actions. Otherwise you are unable to learn from your past mistakes. The **procrastination log** provides as system that is easier for you to gain control of your time and your behavior patterns.
+* ❗Your procrastination log can alert you to the _types_ of situations in which you are most likely to procrastinate. Examples:
     1. Detail activities
     2. Home chores
     3. Performance tasks
     4. Big or dense projects
-* Identify the fears and pressures you typically associate with certain types of projects. The procrastination logs can show you how it helps or hinders your goal achievement. Awareness of the inner dialogue about how it connects to your procrastination patterns will let you make use of the now habit strategy.
+* ✅ Identify the fears and pressures you typically associate with certain types of projects. The procrastination logs can show you how it helps or hinders your goal achievement. Awareness of the inner dialogue about how it connects to your procrastination patterns will let you make use of the now habit strategy.
 
-### Creating safety: the first major step out of procrastination
+### Creating Safety: The First Major Step Out of Procrastination
 
-* Your mind often changes when you face some kind of danger, depending on whether the danger is immediate and real or just possible. Procrastination usually occurs when you use fear to cover up yourself from the pressure of a real deadline.
-* Procrastination and anxiety works in five stages:
+* ❗ Your mind often changes when you face some kind of danger, depending on whether the danger is immediate and real or just possible. Procrastination usually occurs when you use fear to cover up yourself from the pressure of a real deadline.
+* ❗ Procrastination and anxiety works in five stages:
     1. You give a task or a goal the power to determine your worth and happiness;
     2. You use perfectionism to put yourself in a situation where a single mistake will result in the _end of the world_;
     3. You find yourself of _frozen with anxiety_;
@@ -132,12 +132,12 @@
 
 ## Chapter 3: How to Talk to Yourself
 
-### Counterproductive messages
+### Counterproductive Messages
 
-* When we speak to ourselves in an authoritarian voice, it indicates that we feel pressure to do something, and that while one part of ourselves is applying the pressure, the other part does not want to do it. Such self-alienation and subconscious message of such self-talk leads to inner conflict and procrastination of ourselves.
-* To heal self-alienation and inner conflict between the authoritarian voice and rebel, we have to learn a language that removes such conflict and gains power over ourselves.
+* ❗ When we speak to ourselves in an authoritarian voice, it indicates that we feel pressure to do something, and that while one part of ourselves is applying the pressure, the other part does not want to do it. Such self-alienation and subconscious message of such self-talk leads to inner conflict and procrastination of ourselves.
+* ✅ To heal self-alienation and inner conflict between the authoritarian voice and rebel, we have to learn a language that removes such conflict and gains power over ourselves.
 * Counterproductive messages drive you away from the positive direction towards what you _want, decide, or choose_ to do.
-    * Counterproductive messages:
+    * ❌ Counterproductive messages:
         * **The "have to's"** – messages of stress
             * You don't want to do something and you feel that external forces are pushing you towards doing them.
             * A "have to" statement communicates to your subconscious mind:
@@ -158,20 +158,20 @@
                 | **Should be like him/her** | A person you envy or admire | A bad, inadequate self |
                 | **Should be there** | An imagined blissful future | Where you are now |
 
-    * "Have to's: and "should do's" do not communicate to the mind and body a clear picture of:
+    * ❌ "Have to's: and "should do's" do not communicate to the mind and body a clear picture of:
 
         > * _What you choose_ to do
         > * _When you choose_ to do it
         > * _Where you choose_ to start it
         > * _How you choose_ to do it
-* As you speak to yourself in a language focusing on results rather than blame, on choice rather than _have to_, on _what is_ rather than what you think _should be_, you feel that your mind and body cooperate by providing positive energy that release you from the unnecessary struggles of the past and negative comparisons with the future.
+* ✅ As you speak to yourself in a language focusing on results rather than blame, on choice rather than _have to_, on _what is_ rather than what you think _should be_, you feel that your mind and body cooperate by providing positive energy that release you from the unnecessary struggles of the past and negative comparisons with the future.
 
 ### The Power of Choice
 
-* **From resistance to commitment**
+* ✅ **From resistance to commitment**
     * You don't have to _want_ or _love_ to do the task, but if you prefer it to the consequences of not doing it, you can decide to _commit_ it wholeheartedly.
-    * **Since you made a mature commitment to the task rather than arguing against it, you may as well be self-nurturing to make it as pleasant as possible.**
-* **Learning how to say no**
+    * ✅ **Since you made a mature commitment to the task rather than arguing against it, you may as well be self-nurturing to make it as pleasant as possible.**
+* ✅ **Learning how to say no**
     * For procrastinators, saying "no" is a powerful tool for exercising choice.
     * "No" can be used assertively and non-defensively:
 
@@ -179,12 +179,12 @@
         > * "No, I am not as quick as you, and I want time to give it the thoughtful consideration it deserves."
         > * "No, I would rather have a contract with terms I know I can wholeheartedly embrace than endanger the quality of my work by compromising."
         > * "No, I will not be paying that bill now, and I'm willing to pay for the privilege by incurring your interest charges."
-    * **Developing fresh alternative self-statements that involve choice, commitment, and the ability to say no is an essential step toward having a greater range of possibilities in working on any task and in changing from a procrastinator to an effective producer.**
+    * ✅ **Developing fresh alternative self-statements that involve choice, commitment, and the ability to say no is an essential step toward having a greater range of possibilities in working on any task and in changing from a procrastinator to an effective producer.**
 
-### Five self-statements that distinguish procrastinators from producers
+### Five Self-Statements That Distinguish Procrastinators From Producers
 
-* As you switch from the old, negative thinkings to the new and positive thinkings, the old ones will atrophy, and the new ones will become strengthen and easier to start with.
-* Practice shifting to the effective self-talks of producers. You can place them everywhere most visible and accessible to you.
+* ✅ As you switch from the old, negative thinkings to the new and positive thinkings, the old ones will atrophy, and the new ones will become strengthen and easier to start with.
+* ✅ Practice shifting to the effective self-talks of producers. You can place them everywhere most visible and accessible to you.
 
     | # | Negative thinking of… | → | Replace with… |
     |---|-----------------------|---|---------------|
@@ -193,3 +193,84 @@
     | 3 | "This project is so big and important" | → | "I can take one small step" |
     | 4 | "I must be perfect" | → | "I can be perfectly human" |
     | 5 | "I don't have time to play" | → | "I must take time to play" |
+
+## Chapter 4: Guilt-Free Play, Quality Work
+
+* Most tragic form of procrastination – **putting off living**
+    * ❌ Keeps us from completing the most important tasks in life;
+    * ❌ Lessens our respect for ourselves by keeping use in destructive, delaying tactics such as overeating, excessive TV watching, the investment of time and money in a succession of halfhearted and rapidly abandoned hobbies and schemes.
+* ❗ Both workaholics and procrastinators tend to:
+    * See themselves as always **burdened by incomplete work**
+    * Thinking the lives of themselves as "**being on hold**" hoping that someday they will be organized enough to enjoy life
+    * View human beings as lazy and requiring pressure in order to create motivation
+    * Maintain negative attitudes toward work
+* ❗ **Both workaholics and procrastinators are either working or feeling guilty about not working.**
+
+### The Importance of Play
+
+* **Guilt-free play** is essential to attaining quality work and minimizing procrastination. When you apply this strategy, you learn to _play more and complete more quality work_.
+* ❌ Long-term procrastinators _suffered more_ when they take a long time to complete their work. They:
+    * Saw themselves as always working
+    * Thought of their lives as "being on hold"
+    * Felt that work required deprivation and sacrifice
+    * Felt guilty if they spent time with their friends or in leisure activities
+* ✅ On the other hand, those who made good progress and completed their goals timely were dedicated and committed to their _leisure time_.
+    * They had to swim, run, or dance almost every day.
+    * They met with friends frequently on dinners.
+    * They _recreate_ themselves to keep them motivated and interested in returning to their projects.
+* ❗ One reason we procrastinate is that we fear the we have no time to play once we start working, and that work will deprive us of the pleasure of play and the enjoyment of life. **Guilt-free play offers you an alternative way that it insists you to schedule recreation time in your weekly schedule. Making play a priority in your life is an important way to overcome procrastination and to enjoy life more.**
+* ❗ Adults usually think of play as being separate from learning and work. But play is an essential part of every child's development and learning about work, **allowing them to learn the physical, mental and social skills necessary for adult life**.
+* ✅ **Guilt-free play can revive your early excitement about learning, problem-solving, and participating in challenging activities.**
+
+### The Pull Method of Self-Motivation
+
+* ❗ **Push method** – stimulate actions through fear and punishment.
+    * Action produced by punishment does not directed towards the goal, but directed towards escaping the fear.
+    * The push method assumes that humans are lazy and scaring the hell out of them may create motivation.
+* ✅ **Pull method** – stimulate actions through rewards and achievements.
+    * The pull method assumes that we are naturally inquisitive, and if we are properly rewarded for our efforts we can persevere with even the most difficult tasks.
+    * The pull method recognize that _distant and indefinite_ rewards have very little power to motivate a person to continually face difficult, overwhelming tasks.
+    * ❗ There is a low chance you will start working on a task if the immediate results are isolation and pain, and the rewards are distant and uncertain. Chances of choosing this kind of activities are even slimmer.
+    * ✅ Finding some time to do things you really love to do can lessen the sense of burden and deprivation from working.
+
+### From Guilt-Free Play to Quality Work
+
+* ✅ **Enjoying guilt-free play leads to you to higher levels of quality, creative work.**
+* Once you have completed some quality work, your feeling of self-control increases, and your capacity to enjoy _quality, guilt-free play_ grows. The seeds of earlier work also flourish subconsciously into new ideas and breakthroughs. You then become better rested, inspired, and ready for _greater quality work_.
+* As you include guilt-free play among your tools for overcoming procrastination, you will find that insights come to you throughout your day.
+* ✅ Emphasizing the importance of play does not deny the need of work and perseverance. It recognizes the importance of work, but it also recognizes play as a _commitment to a mission_ that focuses your energies and brings about inner harmony, a commitment that comes from a pull _toward_ a goal, and an excitement about the process of getting there.
+
+## Chapter 5: Overcoming Blocks to Action
+
+* Suffering from harsh criticism from yourself, parents, teachers, and friends for doing less-than-perfect work or for not knowing how to solve problems that are easy in others' eyes, you may have develop the tendency to avoid certain types of work.
+* Procrastination, by enabling you to avoid what you fear, is a phobic response to work associated with worry, struggle, failure, and anxiety. If procrastination is your sole self-defense, it will be difficult for you to unlearn it.
+* You need three major tools to cope with procrastination and fear: **three-dimensional thinking**, **the work of worrying**, and **persistent starting**.
+
+### Three Major Blocks
+
+* ✅ The three Now Habit tools:
+    1. **Three-dimensional thinking and the reverse calendar**, to combat the terror of being overwhelmed
+        * It is natural to have some anxiety when you face the work needed to complete a project. This normal level of anxiety will not become overwhelming unless you:
+            1. Insist on knowing the one _right_ place to start.
+            2. Have not permitted yourself time along the course of your project for learning, building confidence with each step, and asking for help.
+            3. Are critical of the fact that you're _only_ starting, and you tell yourself, "I should be finished."
+        * Use the **reverse calendar** to see what you can tackle, where you can delegate, and when you'll have a chance to catch your breath. You should use it _immediately_ if you feel overwhelmed.
+            * The reverse calendar starts from the **ultimate deadline**, moves back step-by-step, and ends at the present where you can focus your energy on starting.
+    2. **The work of worrying**, to tackle the fear of failure and the fear of being imperfect
+        * Ask yourself the six questions as a part of work worrying:
+            1. **What is the worst that could happen?** → Acknowledge the most dreaded scenario.
+            2. **What would I do if the worst really happened?** → Consider where you can get help and what to do. Build confidence that there is nothing so terrible to stop yourself.
+            3. **How would I lessen the pain and get on with as much happiness as possible if the worst did occur?** → Forgiving yourself for being human, vulnerable, and imperfect. Remember your strengths so that you can use them to tackle challenges.
+            4. **What alternatives would I have?** → Consider alternatives of your life. Remember that you have many ways to be happy and successful.
+            5. **What can I do now to lessen the probability of this dreaded event occurring?** → Tackle the problem in the ways that increase your chance of success by reducing the probabilities of the worst things to happen.
+            6. **Is there anything I can do now to increase my chance of achieving my goal?** → Establish a sense of safety that even in the worst situation you have alternatives. You are prepared to do the best without worrying about failure.
+        * By using the work of worrying, creating safety, and using the language of the producer, you are establishing the skills for maintaining genuine self-confidence. You know whether you are calm or anxious, whether you succeed or fail, and you will do your best and be prepared to carry on and try again if necessary. You know that you are _prepared for the worst_ and you can _focus on the work_ that will lead to the _best_.
+    3. **Persistent starting**, to tackle fear of not finishing
+        * Prepare challenges to negative statements and attitudes:
+            1. **"I need to do more preparation before I can start."** → Make real contributions towards completing your work. Gain feedback so that you will be ascertain on what you have completed. Take _one more step forward_.
+            2. **"At this rate I'll never finish."** → Create a positive expectation and then you will have your large jumps in your learning and ability.
+            3. **"I should have started earlier."** → Break the project into sections, along with breaks and planned vacations in-between. Keep your commitment to guilt-free play. Reward yourself every step of progress.
+            4. **"There's only more work after this."** → Avoid feelings of "have to" and fear for future work that have not yet took place. Keep in mind that you are in control of when you face the next step of work, and that you will be stronger after you complete the current step.
+            5. **"It's not working."** → Do not regard difficulties and failures as the sign to give up, but a signal for you to be creative and to tackle around the problem. Focus on the _desired results_ and make your path of work work towards the goal.
+            6. **"I only need a little more time."** → Learn to tolerate the anxiety and risks of finishing, even though you know your work isn't perfect. Learn to cope with criticism by taking your ego off the line. Use the three tools to prepare yourself to deal with anticipated criticism and necessary corrections.
+        * **Keep on starting.** Use these strategies to conquer your fear of being overwhelmed, fear of failure, and fear of finishing.
