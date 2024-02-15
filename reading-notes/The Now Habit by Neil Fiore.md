@@ -33,7 +33,7 @@
 
 ## Chapter 1: Why We Procrastinate
 
-### Warning signs of procrastination
+### Warning Signs of Procrastination
 
 1. Long series of obligations that cannot be met
 2. Unrealistic about time
@@ -42,18 +42,18 @@
 5. Indecisive and afraid of being criticized for mistakes
 6. Low self-esteem and lack of assertiveness
 
-### Why we procrastinate
+### A Positive View of the Human Spirit
 
 * ❌ Procrastination is not from laziness, disorganization or other character defect.
 * ✅ Procrastination is a mechanism **self-defending**: the **fear of failure**, the **fear of being imperfect (perfectionism)**, and the **fear of impossible expectations (being overwhelmed)** that prevent us from acting on and attaining humanly possible goals and relationships.
 
-### Our worst critics are ourselves
+### Our Worst Critics: Ourselves
 
 * In childhood we are often criticized that we are _ever good enough_. We faced criticism or constructive feedback for parents.
 * This leeds to low self-esteem and negative attitudes towards work.
 * ✅ We have to reconstruct our confidence and get rid of our worst critic: _ourselves_. By doing this we can lessen resistance to authority, fear of failure, perfectionism, and fear of success.
 
-### Procrastination is rewarding
+### Procrastination is Rewarding
 
 * ❗ Many ways delaying is used to solve problems:
     * Make postponed tasks completed by someone else
@@ -90,7 +90,7 @@
 
 ## Chapter 2: How We Procrastinate
 
-### Knowing how you spent your time
+### Knowing How You Spend Your Time
 
 * ✅ Observe where your time is going. Record the amount of time spent on your work and life. Create a schedule.
 * ✅ Categorize your activities:
@@ -103,7 +103,7 @@
     * Example: If you are a person taking long time to "settle in" before getting started, make conscious choices when you enter the office in the morning.
 * ❗ Most of the time you spent are not directly related to high-priority tasks. Look for areas of improvement and gain greater control over interruptions and lost time.
 
-### Procrastination logs
+### The Procrastination Log
 
 * ❗Keeping a record of how you spent your time will alert you how you inefficiently used your time, but it will not provide cues for you in actual work situation that need a change in your focus if you want to avoid falling back to your old behavior.
 * ❗By _recording_ your current behavior and thoughts, you can know where to take corrective actions. Otherwise you are unable to learn from your past mistakes. The **procrastination log** provides as system that is easier for you to gain control of your time and your behavior patterns.
@@ -114,7 +114,7 @@
     4. Big or dense projects
 * ✅ Identify the fears and pressures you typically associate with certain types of projects. The procrastination logs can show you how it helps or hinders your goal achievement. Awareness of the inner dialogue about how it connects to your procrastination patterns will let you make use of the now habit strategy.
 
-### Creating safety: the first major step out of procrastination
+### Creating Safety: The First Major Step Out of Procrastination
 
 * ❗ Your mind often changes when you face some kind of danger, depending on whether the danger is immediate and real or just possible. Procrastination usually occurs when you use fear to cover up yourself from the pressure of a real deadline.
 * ❗ Procrastination and anxiety works in five stages:
@@ -132,7 +132,7 @@
 
 ## Chapter 3: How to Talk to Yourself
 
-### Counterproductive messages
+### Counterproductive Messages
 
 * ❗ When we speak to ourselves in an authoritarian voice, it indicates that we feel pressure to do something, and that while one part of ourselves is applying the pressure, the other part does not want to do it. Such self-alienation and subconscious message of such self-talk leads to inner conflict and procrastination of ourselves.
 * ✅ To heal self-alienation and inner conflict between the authoritarian voice and rebel, we have to learn a language that removes such conflict and gains power over ourselves.
@@ -181,7 +181,7 @@
         > * "No, I will not be paying that bill now, and I'm willing to pay for the privilege by incurring your interest charges."
     * ✅ **Developing fresh alternative self-statements that involve choice, commitment, and the ability to say no is an essential step toward having a greater range of possibilities in working on any task and in changing from a procrastinator to an effective producer.**
 
-### Five self-statements that distinguish procrastinators from producers
+### Five Self-Statements That Distinguish Procrastinators From Producers
 
 * ✅ As you switch from the old, negative thinkings to the new and positive thinkings, the old ones will atrophy, and the new ones will become strengthen and easier to start with.
 * ✅ Practice shifting to the effective self-talks of producers. You can place them everywhere most visible and accessible to you.
@@ -206,7 +206,7 @@
     * Maintain negative attitudes toward work
 * ❗ **Both workaholics and procrastinators are either working or feeling guilty about not working.**
 
-### The importance of play
+### The Importance of Play
 
 * **Guilt-free play** is essential to attaining quality work and minimizing procrastination. When you apply this strategy, you learn to _play more and complete more quality work_.
 * ❌ Long-term procrastinators _suffered more_ when they take a long time to complete their work. They:
@@ -222,7 +222,7 @@
 * ❗ Adults usually think of play as being separate from learning and work. But play is an essential part of every child's development and learning about work, **allowing them to learn the physical, mental and social skills necessary for adult life**.
 * ✅ **Guilt-free play can revive your early excitement about learning, problem-solving, and participating in challenging activities.**
 
-### The pull method of self-motivation
+### The Pull Method of Self-Motivation
 
 * ❗ **Push method** – stimulate actions through fear and punishment.
     * Action produced by punishment does not directed towards the goal, but directed towards escaping the fear.
@@ -233,7 +233,7 @@
     * ❗ There is a low chance you will start working on a task if the immediate results are isolation and pain, and the rewards are distant and uncertain. Chances of choosing this kind of activities are even slimmer.
     * ✅ Finding some time to do things you really love to do can lessen the sense of burden and deprivation from working.
 
-### From guilt-free play to quality work
+### From Guilt-Free Play to Quality Work
 
 * ✅ **Enjoying guilt-free play leads to you to higher levels of quality, creative work.**
 * Once you have completed some quality work, your feeling of self-control increases, and your capacity to enjoy _quality, guilt-free play_ grows. The seeds of earlier work also flourish subconsciously into new ideas and breakthroughs. You then become better rested, inspired, and ready for _greater quality work_.
@@ -242,13 +242,11 @@
 
 ## Chapter 5: Overcoming Blocks to Action
 
-### Overcoming blocks to action
-
 * Suffering from harsh criticism from yourself, parents, teachers, and friends for doing less-than-perfect work or for not knowing how to solve problems that are easy in others' eyes, you may have develop the tendency to avoid certain types of work.
 * Procrastination, by enabling you to avoid what you fear, is a phobic response to work associated with worry, struggle, failure, and anxiety. If procrastination is your sole self-defense, it will be difficult for you to unlearn it.
 * You need three major tools to cope with procrastination and fear: **three-dimensional thinking**, **the work of worrying**, and **persistent starting**.
 
-### Three major blocks
+### Three Major Blocks
 
 * ✅ The three Now Habit tools:
     1. **Three-dimensional thinking and the reverse calendar**, to combat the terror of being overwhelmed
