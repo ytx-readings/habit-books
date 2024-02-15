@@ -274,3 +274,68 @@
             5. **"It's not working."** → Do not regard difficulties and failures as the sign to give up, but a signal for you to be creative and to tackle around the problem. Focus on the _desired results_ and make your path of work work towards the goal.
             6. **"I only need a little more time."** → Learn to tolerate the anxiety and risks of finishing, even though you know your work isn't perfect. Learn to cope with criticism by taking your ego off the line. Use the three tools to prepare yourself to deal with anticipated criticism and necessary corrections.
         * **Keep on starting.** Use these strategies to conquer your fear of being overwhelmed, fear of failure, and fear of finishing.
+
+## Chapter 6: The Unschedule
+
+### Even Producers Need a System
+
+* ❗ System of goal achievement:
+    * Guilt-free play
+    * Quality work
+    * The Unschedule
+* ✅ **The Unschedule** plays these roles:
+    * Weekly calendar of recreational activities
+    * Integrates several well-organized behavioral and psychological principles in an innovative way to address procrastination and improve productivity and creativity
+    * Builds confidence in two ways:
+        1. It gives you immediate and frequent rewards following short periods of work
+        2. Gives you visible reward that allows you to see how much concentrated, uninterrupted work you have completed each day and each week
+
+### Reverse Psychology
+
+* ✅ **Unschedule: _put more time into leisure and more quality into your work_**
+    * Do not work more than twenty hours a week on this project.
+    * Do not work more than five hours a day on this project.
+    * You _must_ exercise, play, or dance at least one hour a day.
+    * You _must_ take at least one day a week off from any work.
+    * Aim for starting on thirty minutes of quality work.
+    * Work for an imperfect, perfectly human first effort.
+    * Start small.
+* ❗ This strategy _reverses_ those fears of being overwhelmed and of failure and turns them into **powerful tools for developing the Now Habit**.
+
+### How to Use the Unschedule
+
+* ✅ Guidelines for filling in your Unschedule:
+    1. Schedule only:
+        * previously committed time such as meals, sleep, meetings
+        * free time, recreation, leisure reading
+        * socializing, lunches and dinners with friends
+        * health activities such as swimming, running, tennis, working out at the gym
+        * routine structured events such as commuting time, classes, medical appointments
+    2. Fill in your Unschedule with work on projects only after you have completed at least one-half hour.
+    3. Take credit only for periods of work that represent at least thirty minutes of uninterrupted work.
+    4. Reward yourself with a break or a change to a more enjoyable task after each period worked.
+    5. Keep track of the number of quality hours worked each day and each week.
+    6. Always leave at least one full day a week for recreation and any small chores you wish to take care of.
+    7. Before deciding to go to a recreational activity or social commitment, take time out for just thirty minutes of work on your project.
+    8. Focus on starting.
+    9. Think small.
+    10. Keep starting.
+    11. Never end "down."
+* ✅ Use a personal organizer to note down your activities.
+    * Use different colors for different activities. Color-coding your activities will help you quickly see important patterns in your daily activities.
+    * Note the times in which you work best and the days for which you need to focus on starting earlier.
+    * A common pattern is a slump following a period of intense work. You might observe that after several eight-hour days of uninterrupted work with no breaks on the weekend, you lose a whole week to procrastination or illness.
+
+### Adjusting Your Unschedule
+
+* ❗ Some important factors to consider when you use unschedule:
+    * You're probably busier than you thought.
+    * Certain days are less productive than others.
+    * Other days are so busy that you need to lower your expectations on getting started on a big project.
+    * Even a half-hour of work on your project is enough to maintain momentum and avoid the extra burden of having to overcome inertia tomorrow.
+* ✅ Using the unschedule provides five major benefits that lead to greater enjoyment of guilt-free play and overcoming procrastination:
+    1. **Realistic timekeeping**: Record the time commitment by yourself allows you to see how much time is really left for working towards your goals.
+    2. **Thirty minutes of quality time**: Aiming at _starting_ (rather than finishing) for thirty minutes allows you to feel less overwhelmed. Also, being focused every half-hour allows you to get something done or at least get organized, so the next time of starting will be easier for you.
+    3. **Experiencing success**: Scheduling rewards or alternative activities allows you to feel the progress rather than failure to meet an unrealistic schedule, and lessens your deprivation from work and let you experience work as something that gives you pride and allows you to fully enjoy your leisure time.
+    4. **Self-imposed deadlines**: Setting internal deadlines by yourself allows you to gain self-control over what you are doing, and maintain commitment to your health, friends, or other to-do list items _without guilt_.
+    5. **Newfound "free-time"**: By pre-scheduling your leisure activities, you would see that when one of them is cancelled, you have free time to work. You also experience a wonderful and surprising sense of motivation to get something started. You may also discover that you may want to do some new work using the free time.
