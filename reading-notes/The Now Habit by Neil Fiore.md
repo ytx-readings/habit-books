@@ -239,3 +239,40 @@
 * Once you have completed some quality work, your feeling of self-control increases, and your capacity to enjoy _quality, guilt-free play_ grows. The seeds of earlier work also flourish subconsciously into new ideas and breakthroughs. You then become better rested, inspired, and ready for _greater quality work_.
 * As you include guilt-free play among your tools for overcoming procrastination, you will find that insights come to you throughout your day.
 * ✅ Emphasizing the importance of play does not deny the need of work and perseverance. It recognizes the importance of work, but it also recognizes play as a _commitment to a mission_ that focuses your energies and brings about inner harmony, a commitment that comes from a pull _toward_ a goal, and an excitement about the process of getting there.
+
+## Chapter 5: Overcoming Blocks to Action
+
+### Overcoming blocks to action
+
+* Suffering from harsh criticism from yourself, parents, teachers, and friends for doing less-than-perfect work or for not knowing how to solve problems that are easy in others' eyes, you may have develop the tendency to avoid certain types of work.
+* Procrastination, by enabling you to avoid what you fear, is a phobic response to work associated with worry, struggle, failure, and anxiety. If procrastination is your sole self-defense, it will be difficult for you to unlearn it.
+* You need three major tools to cope with procrastination and fear: **three-dimensional thinking**, **the work of worrying**, and **persistent starting**.
+
+### Three major blocks
+
+* ✅ The three Now Habit tools:
+    1. **Three-dimensional thinking and the reverse calendar**, to combat the terror of being overwhelmed
+        * It is natural to have some anxiety when you face the work needed to complete a project. This normal level of anxiety will not become overwhelming unless you:
+            1. Insist on knowing the one _right_ place to start.
+            2. Have not permitted yourself time along the course of your project for learning, building confidence with each step, and asking for help.
+            3. Are critical of the fact that you're _only_ starting, and you tell yourself, "I should be finished."
+        * Use the **reverse calendar** to see what you can tackle, where you can delegate, and when you'll have a chance to catch your breath. You should use it _immediately_ if you feel overwhelmed.
+            * The reverse calendar starts from the **ultimate deadline**, moves back step-by-step, and ends at the present where you can focus your energy on starting.
+    2. **The work of worrying**, to tackle the fear of failure and the fear of being imperfect
+        * Ask yourself the six questions as a part of work worrying:
+            1. **What is the worst that could happen?** → Acknowledge the most dreaded scenario.
+            2. **What would I do if the worst really happened?** → Consider where you can get help and what to do. Build confidence that there is nothing so terrible to stop yourself.
+            3. **How would I lessen the pain and get on with as much happiness as possible if the worst did occur?** → Forgiving yourself for being human, vulnerable, and imperfect. Remember your strengths so that you can use them to tackle challenges.
+            4. **What alternatives would I have?** → Consider alternatives of your life. Remember that you have many ways to be happy and successful.
+            5. **What can I do now to lessen the probability of this dreaded event occurring?** → Tackle the problem in the ways that increase your chance of success by reducing the probabilities of the worst things to happen.
+            6. **Is there anything I can do now to increase my chance of achieving my goal?** → Establish a sense of safety that even in the worst situation you have alternatives. You are prepared to do the best without worrying about failure.
+        * By using the work of worrying, creating safety, and using the language of the producer, you are establishing the skills for maintaining genuine self-confidence. You know whether you are calm or anxious, whether you succeed or fail, and you will do your best and be prepared to carry on and try again if necessary. You know that you are _prepared for the worst_ and you can _focus on the work_ that will lead to the _best_.
+    3. **Persistent starting**, to tackle fear of not finishing
+        * Prepare challenges to negative statements and attitudes:
+            1. **"I need to do more preparation before I can start."** → Make real contributions towards completing your work. Gain feedback so that you will be ascertain on what you have completed. Take _one more step forward_.
+            2. **"At this rate I'll never finish."** → Create a positive expectation and then you will have your large jumps in your learning and ability.
+            3. **"I should have started earlier."** → Break the project into sections, along with breaks and planned vacations in-between. Keep your commitment to guilt-free play. Reward yourself every step of progress.
+            4. **"There's only more work after this."** → Avoid feelings of "have to" and fear for future work that have not yet took place. Keep in mind that you are in control of when you face the next step of work, and that you will be stronger after you complete the current step.
+            5. **"It's not working."** → Do not regard difficulties and failures as the sign to give up, but a signal for you to be creative and to tackle around the problem. Focus on the _desired results_ and make your path of work work towards the goal.
+            6. **"I only need a little more time."** → Learn to tolerate the anxiety and risks of finishing, even though you know your work isn't perfect. Learn to cope with criticism by taking your ego off the line. Use the three tools to prepare yourself to deal with anticipated criticism and necessary corrections.
+        * **Keep on starting.** Use these strategies to conquer your fear of being overwhelmed, fear of failure, and fear of finishing.
