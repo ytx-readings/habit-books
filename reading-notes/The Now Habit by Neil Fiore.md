@@ -339,3 +339,53 @@
     3. **Experiencing success**: Scheduling rewards or alternative activities allows you to feel the progress rather than failure to meet an unrealistic schedule, and lessens your deprivation from work and let you experience work as something that gives you pride and allows you to fully enjoy your leisure time.
     4. **Self-imposed deadlines**: Setting internal deadlines by yourself allows you to gain self-control over what you are doing, and maintain commitment to your health, friends, or other to-do list items _without guilt_.
     5. **Newfound "free-time"**: By pre-scheduling your leisure activities, you would see that when one of them is cancelled, you have free time to work. You also experience a wonderful and surprising sense of motivation to get something started. You may also discover that you may want to do some new work using the free time.
+
+## Chapter 7: Working in the Flow State
+
+* We all experience daily shifts of consciousness into natural levels of calm, focused energy and attention.
+    * Our ability to concentrate improves so we are able to focus on one topic, screening out extraneous stimuli, and are less likely to be distracted by the fears and worries that lead to procrastination.
+    * During these special states, our tolerance for noise and pain is higher than usual, while the pulse rate, blood pressure, and heart rate are lower, and metabolism is more efficient.
+    * It's a healthier state, in which our ability to perform athletic or creative tasks and solve problems increases.
+* ❗ Definition of **flow state**: "reflecting an inner state that is both intensely focused and exceptionally calm."
+
+### Using More of Your Brain
+
+* ❗ You can tell that your critical functions are getting in the way of your creative side if you hear yourself saying:
+
+    > * "But is this the right direction?"
+    > * "Will it be good enough?"
+    > * "What if the boss/teacher/audience isn’t happy with it?"
+    > * "Can I do it?"
+    > * "I have to finish soon."
+    > * "When will I ever learn to start earlier?"
+    > * "There’s so much to do."
+* For you to work rapidly and creatively, you left and right hemispheres of your brain must cooperate together.
+    * **Left hemisphere**: responsible for critical and logical functions
+    * **Right hemisphere**: responsible for creative functions
+    * The left hemisphere must be temporarily be suspended to allow the right hemisphere to start the flow of ideas and inspirations that you need. Later your left side can organize them to fit the projects of the customer.
+
+### It's Only Your First Draft
+
+* ✅ We need to temporarily suspend the criticism and linear thought when we start a new project. We also need to protect the early renderings of our projects from the overly critical comparison with the ideal, ultimate goal.
+* Even the great writers and artists undergo a nonlinear, seemingly disorganized creative process we experience when we start a new project.
+
+### Learning to Focus
+
+* ✅ Regardless of how you feel, within two minutes you will be focused, curious, motivated, and creative. And, most important of all, you will have started – and be on your way to finishing.
+    * The two-minute procedure shifts your mind rapidly to the flow state by replacing guilt and stress with a stress-free focus on the presence.
+    * It is purposefully short so that you can integrate it throughout your busy day, instead of spending some dedicated time to practice it.
+
+### Focusing Exercise
+
+* ✅ Focus on breathing. Release your muscle tensions. Keep these ideas in mind when doing the focusing exercise:
+    1. Letting go of the past
+    2. Letting go of the future
+    3. Centering in the present
+
+### Relaxation Exercise
+
+* ✅ Close your eyes. Take deep breath.
+
+### Incorporating Flow States Into Your Program
+
+* ✅ **Working in the flow state** or _in the zone_ removes the emotional need to procrastinate and accelerates your progress toward your goals. It will also complement your other Now Habit tools and will eliminate most, if not all, of the negative habits that kept you procrastinating. It will replace them with positive work attitudes and habits that turn work into an opportunity for exciting, focused, and creative achievement.
