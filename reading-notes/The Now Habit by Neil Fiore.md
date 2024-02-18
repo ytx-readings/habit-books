@@ -389,3 +389,69 @@
 ### Incorporating Flow States Into Your Program
 
 * ✅ **Working in the flow state** or _in the zone_ removes the emotional need to procrastinate and accelerates your progress toward your goals. It will also complement your other Now Habit tools and will eliminate most, if not all, of the negative habits that kept you procrastinating. It will replace them with positive work attitudes and habits that turn work into an opportunity for exciting, focused, and creative achievement.
+
+## Chapter 8: Fine-Tuning Your Progress
+
+### Planned Setbacks
+
+* Completely transforming from your old habits to a new, more productive behavior pattern needs trying to tackle difficult or tempting situations. However, you do not need to totally eliminate your old behavior in order to learn the new one. Instead, you may use familiar patterns to alert you to exercise the new choices you have.
+* ✅ You may **plan a controlled setback** to strengthen your ability to switch from the old behavior to the new one.
+    * Use controlled setbacks to rehearse your reactions. When you succumb to procrastinate because of anxiety or fear, alert yourself you now have an alternative option to control your fear and enhance your sense of achievements, hence you can better get rid of procrastinating.
+    * To test yourself use a **planned setback**:
+        1. Choose a project on which you are likely to procrastinate.
+        2. Notice the warning signs of procrastination associated with this project.
+        3. Consciously choose to procrastinate for a few hours to observe the self-statements that lead to guilt and self-criticism.
+        4. Notice how this process of self-criticism leads to guilt, depression, and resentment.
+    * Your planned setback will point you out when you are most likely to procrastinate. You now know where your former habits lead. Your knowledge of the guilt, frustration, and dissatisfaction that result from your former pattern can motivate you to use your new skills at guilt-free play, the Unschedule, and working in the flow state.
+    * Use your planned setback as an instant replay, observing your thoughts as if from a distance as you "wire in" the corrective Now Habit technique every time you spot a symptom of counterproductive thinking and action.
+        1. Notice how the challenging self-statements of a producer leeds to feeling of power and to focusing what you can do in manageable chunks.
+        2. Use the Unschedule to put these strategies into operation, by creating a realistic picture of the time available this week, assured guilt-free play, rewards for doable periods of quality work, and a system for building on what you are achieving.
+        3. Use the focusing exercise to help you rapidly and efficiently make the transition from overwhelmed to focused by accessing your deeper, creative self; taking time to remind yourself of positive suggestions and visualizations; and focusing in the present with choice, motivation, and interest.
+
+### Resilience and Hardiness
+
+* ✅ **Resilience**: the ability to _bounce back_
+    * Anytime you commit yourself to new behavior, you can expect some setbacks. But the setbacks should not be a excuse to procrastinate.
+    * Avoid self-criticism about setbacks or obstacles that appear in the middle of your project.
+    * Sticking with the mission while adjusting to negative feedback is an essential skill in the repertoire of the long-term performer.
+* ✅ **Hardiness**: the ability to _withstand and avoid pitfalls_
+    * To build hardiness into the way you cope with work projects, you can practice attitudes of commitment, control, and challenge in leisure activities such as exercise.
+    * Focusing solely on the goal is exhausting, and maintaining inflexible goals makes it harder to proceed.
+    * To achieve goals that require enormous effort, you should _start from the small steps_ you could take, notice your change in perspective and feelings, and focus on the process of achieving the goal rather than the goal itself.
+
+### Concentration: Controlling Distractions
+
+* ❗ Overcoming procrastination while in the midst of a setback can be complicated by an inability to concentrate.
+* ❗ Some distractions require your immediate attention; others could be handled after you complete some type of quality work.
+* ❗ There are at least five types of distractions, and you have certain strategies to deal with these distractions:
+    1. **Strong emotions**
+        * Deserves your immediate attention.
+        * Think through and write down what you could do to cope with such situations or change it, or seek support from friends.
+    2. **Warnings of danger**
+        * Rethink of the pressure messages you give to yourself, and always remember that you have alternative options.
+        * Create a coping plan and a safety net, to get rid of your sense of worrying about imagined catastrophes.
+    3. **"To-do" reminders**
+        * Write down you to-dos and deal with them later, after you complete at least one-half hour of quality work.
+    4. **Escape fantasies**
+        * Work on short, tolerable periods of work and making sure you have rewards and social events to look forward to on your Unschedule to minimize this type of distraction.
+    5. **UFOs – unidentified flights of originality**
+        * Creative and often seductive thoughts usually are not useful to you while you complete quality work.
+        * Let them fly away or undisturbed, or write them down so you may later reconsider them if you wish.
+* ✅ By identifying and recording distractions, you’ll be keeping interruptions to a minimum. And because you know that the distractions will be dealt with soon if they’re important, you'll be able to stay relaxed enough to concentrate on doing quality work on your current project.
+
+### Mental Rehearsal and Pre-Programming
+
+* ✅ You will have given your mind a picture it can grasp and a message it can cooperate with. It will draw you to the place you imagined for your chosen work.
+
+### Effective Goal-Setting
+
+* ✅ Set realistic goals.
+    * Let go of goals that could not be achieved or started in the near future.
+    * To set realistic goals you must be willing to fully commit to working on the _path_ to that goal and be capable of investing the time and energy required to start now.
+    * _You are the master of your goals._ Do not let unrealistic goals be used as an occasion for self-criticism and for lapsing into identifying yourself as a procrastinator.
+* **Avoiding setbacks**
+    * ✅ Setting a goal will require you to steer your activities in one direction, within a prescribed time period, along a path of challenges that will remind you of your human limits and frailties.
+    * ✅ Three steps to apply the Now Habit and set goals effectively:
+        1. Recognize the work of procrastinating.
+        2. Freely choose the entire goal.
+        3. Create functional, observable goals.
