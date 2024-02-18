@@ -339,3 +339,159 @@
     3. **Experiencing success**: Scheduling rewards or alternative activities allows you to feel the progress rather than failure to meet an unrealistic schedule, and lessens your deprivation from work and let you experience work as something that gives you pride and allows you to fully enjoy your leisure time.
     4. **Self-imposed deadlines**: Setting internal deadlines by yourself allows you to gain self-control over what you are doing, and maintain commitment to your health, friends, or other to-do list items _without guilt_.
     5. **Newfound "free-time"**: By pre-scheduling your leisure activities, you would see that when one of them is cancelled, you have free time to work. You also experience a wonderful and surprising sense of motivation to get something started. You may also discover that you may want to do some new work using the free time.
+
+## Chapter 7: Working in the Flow State
+
+* We all experience daily shifts of consciousness into natural levels of calm, focused energy and attention.
+    * Our ability to concentrate improves so we are able to focus on one topic, screening out extraneous stimuli, and are less likely to be distracted by the fears and worries that lead to procrastination.
+    * During these special states, our tolerance for noise and pain is higher than usual, while the pulse rate, blood pressure, and heart rate are lower, and metabolism is more efficient.
+    * It's a healthier state, in which our ability to perform athletic or creative tasks and solve problems increases.
+* ❗ Definition of **flow state**: "reflecting an inner state that is both intensely focused and exceptionally calm."
+
+### Using More of Your Brain
+
+* ❗ You can tell that your critical functions are getting in the way of your creative side if you hear yourself saying:
+
+    > * "But is this the right direction?"
+    > * "Will it be good enough?"
+    > * "What if the boss/teacher/audience isn't happy with it?"
+    > * "Can I do it?"
+    > * "I have to finish soon."
+    > * "When will I ever learn to start earlier?"
+    > * "There's so much to do."
+* For you to work rapidly and creatively, you left and right hemispheres of your brain must cooperate together.
+    * **Left hemisphere**: responsible for critical and logical functions
+    * **Right hemisphere**: responsible for creative functions
+    * The left hemisphere must be temporarily be suspended to allow the right hemisphere to start the flow of ideas and inspirations that you need. Later your left side can organize them to fit the projects of the customer.
+
+### It's Only Your First Draft
+
+* ✅ We need to temporarily suspend the criticism and linear thought when we start a new project. We also need to protect the early renderings of our projects from the overly critical comparison with the ideal, ultimate goal.
+* Even the great writers and artists undergo a nonlinear, seemingly disorganized creative process we experience when we start a new project.
+
+### Learning to Focus
+
+* ✅ Regardless of how you feel, within two minutes you will be focused, curious, motivated, and creative. And, most important of all, you will have started – and be on your way to finishing.
+    * The two-minute procedure shifts your mind rapidly to the flow state by replacing guilt and stress with a stress-free focus on the presence.
+    * It is purposefully short so that you can integrate it throughout your busy day, instead of spending some dedicated time to practice it.
+
+### Focusing Exercise
+
+* ✅ Focus on breathing. Release your muscle tensions. Keep these ideas in mind when doing the focusing exercise:
+    1. Letting go of the past
+    2. Letting go of the future
+    3. Centering in the present
+
+### Relaxation Exercise
+
+* ✅ Close your eyes. Take deep breath.
+
+### Incorporating Flow States Into Your Program
+
+* ✅ **Working in the flow state** or _in the zone_ removes the emotional need to procrastinate and accelerates your progress toward your goals. It will also complement your other Now Habit tools and will eliminate most, if not all, of the negative habits that kept you procrastinating. It will replace them with positive work attitudes and habits that turn work into an opportunity for exciting, focused, and creative achievement.
+
+## Chapter 8: Fine-Tuning Your Progress
+
+### Planned Setbacks
+
+* Completely transforming from your old habits to a new, more productive behavior pattern needs trying to tackle difficult or tempting situations. However, you do not need to totally eliminate your old behavior in order to learn the new one. Instead, you may use familiar patterns to alert you to exercise the new choices you have.
+* ✅ You may **plan a controlled setback** to strengthen your ability to switch from the old behavior to the new one.
+    * Use controlled setbacks to rehearse your reactions. When you succumb to procrastinate because of anxiety or fear, alert yourself you now have an alternative option to control your fear and enhance your sense of achievements, hence you can better get rid of procrastinating.
+    * To test yourself use a **planned setback**:
+        1. Choose a project on which you are likely to procrastinate.
+        2. Notice the warning signs of procrastination associated with this project.
+        3. Consciously choose to procrastinate for a few hours to observe the self-statements that lead to guilt and self-criticism.
+        4. Notice how this process of self-criticism leads to guilt, depression, and resentment.
+    * Your planned setback will point you out when you are most likely to procrastinate. You now know where your former habits lead. Your knowledge of the guilt, frustration, and dissatisfaction that result from your former pattern can motivate you to use your new skills at guilt-free play, the Unschedule, and working in the flow state.
+    * Use your planned setback as an instant replay, observing your thoughts as if from a distance as you "wire in" the corrective Now Habit technique every time you spot a symptom of counterproductive thinking and action.
+        1. Notice how the challenging self-statements of a producer leeds to feeling of power and to focusing what you can do in manageable chunks.
+        2. Use the Unschedule to put these strategies into operation, by creating a realistic picture of the time available this week, assured guilt-free play, rewards for doable periods of quality work, and a system for building on what you are achieving.
+        3. Use the focusing exercise to help you rapidly and efficiently make the transition from overwhelmed to focused by accessing your deeper, creative self; taking time to remind yourself of positive suggestions and visualizations; and focusing in the present with choice, motivation, and interest.
+
+### Resilience and Hardiness
+
+* ✅ **Resilience**: the ability to _bounce back_
+    * Anytime you commit yourself to new behavior, you can expect some setbacks. But the setbacks should not be a excuse to procrastinate.
+    * Avoid self-criticism about setbacks or obstacles that appear in the middle of your project.
+    * Sticking with the mission while adjusting to negative feedback is an essential skill in the repertoire of the long-term performer.
+* ✅ **Hardiness**: the ability to _withstand and avoid pitfalls_
+    * To build hardiness into the way you cope with work projects, you can practice attitudes of commitment, control, and challenge in leisure activities such as exercise.
+    * Focusing solely on the goal is exhausting, and maintaining inflexible goals makes it harder to proceed.
+    * To achieve goals that require enormous effort, you should _start from the small steps_ you could take, notice your change in perspective and feelings, and focus on the process of achieving the goal rather than the goal itself.
+
+### Concentration: Controlling Distractions
+
+* ❗ Overcoming procrastination while in the midst of a setback can be complicated by an inability to concentrate.
+* ❗ Some distractions require your immediate attention; others could be handled after you complete some type of quality work.
+* ❗ There are at least five types of distractions, and you have certain strategies to deal with these distractions:
+    1. **Strong emotions**
+        * Deserves your immediate attention.
+        * Think through and write down what you could do to cope with such situations or change it, or seek support from friends.
+    2. **Warnings of danger**
+        * Rethink of the pressure messages you give to yourself, and always remember that you have alternative options.
+        * Create a coping plan and a safety net, to get rid of your sense of worrying about imagined catastrophes.
+    3. **"To-do" reminders**
+        * Write down you to-dos and deal with them later, after you complete at least one-half hour of quality work.
+    4. **Escape fantasies**
+        * Work on short, tolerable periods of work and making sure you have rewards and social events to look forward to on your Unschedule to minimize this type of distraction.
+    5. **UFOs – unidentified flights of originality**
+        * Creative and often seductive thoughts usually are not useful to you while you complete quality work.
+        * Let them fly away or undisturbed, or write them down so you may later reconsider them if you wish.
+* ✅ By identifying and recording distractions, you'll be keeping interruptions to a minimum. And because you know that the distractions will be dealt with soon if they're important, you'll be able to stay relaxed enough to concentrate on doing quality work on your current project.
+
+### Mental Rehearsal and Pre-Programming
+
+* ✅ You will have given your mind a picture it can grasp and a message it can cooperate with. It will draw you to the place you imagined for your chosen work.
+
+### Effective Goal-Setting
+
+* ✅ Set realistic goals.
+    * Let go of goals that could not be achieved or started in the near future.
+    * To set realistic goals you must be willing to fully commit to working on the _path_ to that goal and be capable of investing the time and energy required to start now.
+    * _You are the master of your goals._ Do not let unrealistic goals be used as an occasion for self-criticism and for lapsing into identifying yourself as a procrastinator.
+* **Avoiding setbacks**
+    * ✅ Setting a goal will require you to steer your activities in one direction, within a prescribed time period, along a path of challenges that will remind you of your human limits and frailties.
+    * ✅ Three steps to apply the Now Habit and set goals effectively:
+        1. Recognize the work of procrastinating.
+        2. Freely choose the entire goal.
+        3. Create functional, observable goals.
+
+## Chapter 9: The Procrastination in Your Life
+
+### Managing People Who Procrastinate
+
+* Effective managers can better control procrastination by being mindful of the counterproductive self-talks of the procrastinators themselves, so that they are prepared to counter their unproductive focus and stimulate their energy towards results.
+* ❗ **The ability to communicate in the language, images, and emotions that evoke understanding, inspiration, and direction in the governed is the hallmark of effective leadership.** The effective manager, coach, or leader can empathize with the various learning styles and emotional perspectives of the governed.
+* ❗ To work effectively with procrastinators – and that means most people – managers must keep in mind the **three issues** that are the foundations of procrastination: feeling like a victim, being overwhelmed, and the fear of failure.
+
+### Commitment vs. Compliance
+
+* _Commitment_ to a task sparks much more creativity and motivation than _compliance_. Management through compliance places a heavy burden on the manager to maintain sufficient authority and force to have workers acquiesce to orders without question.
+* ✅ Allowing employees to participate in decision that affect their work and give them choices on how they carry out orders will provide them a sense of commitment.
+
+### Focusing on Starting vs. Finishing
+
+* ❗ Anxiety often come from large or important tasks, the distant deadlines, and the enormity of work required to accomplish them.
+* ✅ Effective managers communicate employees the specific action steps to begin a task. They also take time to ascertain the possible causes of blocks: wasting time trying to be perfect, being overwhelmed by trying to tackle the entire task, failing to create a three-dimensional schedule of the sub-goals, and a clear image of when and where to start.
+
+### Getting Results or Giving Criticism
+
+* ✅ Guidelines for managers to improve productivity and avoid actions that lead to procrastination:
+    1. State your priorities clearly
+    2. Be decisive
+    3. Be fair and frequent in your rewards
+    4. Give constructive feedback
+
+### Living with a Procrastinator
+
+* Though the procrastination patterns of a loved one may directly affect you, it is important that you not take them as personal affronts. Dealing with perfectionism, fear of failure and success, and the other underlying causes of procrastination makes it extremely difficult for most procrastinators to maintain a realistic idea of how much time it will take for them to complete a task.
+* On the other hand, the procrastinators shouldn't take it personally if you leave exactly when you say you're going to leave rather than waiting for them. You might explain how, through no real fault of your own, you are rather neurotic about being on time. You hope they understand and forgive you your little obsession, but it is better for your relationship with them if you can leave when you say you're going to leave.
+* ✅ Develop a sensibility to each other's priorities.
+* ✅ Use the Now Habit strategies to clarify your communication and demonstrate for them the quality work and guilt-free play of a producer.
+
+### A Last Word
+
+* ✅ Experiment with the techniques presented throughout this book.
+* ✅ Fine-tune them to fit your personal style and your situation.
+* ✅ Stay open to change, with the assurance that you have the new tools of the Now Habit to replace old procrastination patterns and underachievement.
+* ✅ Avoid statements such as "I'll try it" or "It's not working," which reveal a testing attitude rather than a firm commitment.
