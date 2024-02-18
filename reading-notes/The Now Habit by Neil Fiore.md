@@ -354,11 +354,11 @@
 
     > * "But is this the right direction?"
     > * "Will it be good enough?"
-    > * "What if the boss/teacher/audience isn’t happy with it?"
+    > * "What if the boss/teacher/audience isn't happy with it?"
     > * "Can I do it?"
     > * "I have to finish soon."
     > * "When will I ever learn to start earlier?"
-    > * "There’s so much to do."
+    > * "There's so much to do."
 * For you to work rapidly and creatively, you left and right hemispheres of your brain must cooperate together.
     * **Left hemisphere**: responsible for critical and logical functions
     * **Right hemisphere**: responsible for creative functions
@@ -437,7 +437,7 @@
     5. **UFOs – unidentified flights of originality**
         * Creative and often seductive thoughts usually are not useful to you while you complete quality work.
         * Let them fly away or undisturbed, or write them down so you may later reconsider them if you wish.
-* ✅ By identifying and recording distractions, you’ll be keeping interruptions to a minimum. And because you know that the distractions will be dealt with soon if they’re important, you'll be able to stay relaxed enough to concentrate on doing quality work on your current project.
+* ✅ By identifying and recording distractions, you'll be keeping interruptions to a minimum. And because you know that the distractions will be dealt with soon if they're important, you'll be able to stay relaxed enough to concentrate on doing quality work on your current project.
 
 ### Mental Rehearsal and Pre-Programming
 
@@ -455,3 +455,43 @@
         1. Recognize the work of procrastinating.
         2. Freely choose the entire goal.
         3. Create functional, observable goals.
+
+## Chapter 9: The Procrastination in Your Life
+
+### Managing People Who Procrastinate
+
+* Effective managers can better control procrastination by being mindful of the counterproductive self-talks of the procrastinators themselves, so that they are prepared to counter their unproductive focus and stimulate their energy towards results.
+* ❗ **The ability to communicate in the language, images, and emotions that evoke understanding, inspiration, and direction in the governed is the hallmark of effective leadership.** The effective manager, coach, or leader can empathize with the various learning styles and emotional perspectives of the governed.
+* ❗ To work effectively with procrastinators – and that means most people – managers must keep in mind the **three issues** that are the foundations of procrastination: feeling like a victim, being overwhelmed, and the fear of failure.
+
+### Commitment vs. Compliance
+
+* _Commitment_ to a task sparks much more creativity and motivation than _compliance_. Management through compliance places a heavy burden on the manager to maintain sufficient authority and force to have workers acquiesce to orders without question.
+* ✅ Allowing employees to participate in decision that affect their work and give them choices on how they carry out orders will provide them a sense of commitment.
+
+### Focusing on Starting vs. Finishing
+
+* ❗ Anxiety often come from large or important tasks, the distant deadlines, and the enormity of work required to accomplish them.
+* ✅ Effective managers communicate employees the specific action steps to begin a task. They also take time to ascertain the possible causes of blocks: wasting time trying to be perfect, being overwhelmed by trying to tackle the entire task, failing to create a three-dimensional schedule of the sub-goals, and a clear image of when and where to start.
+
+### Getting Results or Giving Criticism
+
+* ✅ Guidelines for managers to improve productivity and avoid actions that lead to procrastination:
+    1. State your priorities clearly
+    2. Be decisive
+    3. Be fair and frequent in your rewards
+    4. Give constructive feedback
+
+### Living with a Procrastinator
+
+* Though the procrastination patterns of a loved one may directly affect you, it is important that you not take them as personal affronts. Dealing with perfectionism, fear of failure and success, and the other underlying causes of procrastination makes it extremely difficult for most procrastinators to maintain a realistic idea of how much time it will take for them to complete a task.
+* On the other hand, the procrastinators shouldn't take it personally if you leave exactly when you say you're going to leave rather than waiting for them. You might explain how, through no real fault of your own, you are rather neurotic about being on time. You hope they understand and forgive you your little obsession, but it is better for your relationship with them if you can leave when you say you're going to leave.
+* ✅ Develop a sensibility to each other's priorities.
+* ✅ Use the Now Habit strategies to clarify your communication and demonstrate for them the quality work and guilt-free play of a producer.
+
+### A Last Word
+
+* ✅ Experiment with the techniques presented throughout this book.
+* ✅ Fine-tune them to fit your personal style and your situation.
+* ✅ Stay open to change, with the assurance that you have the new tools of the Now Habit to replace old procrastination patterns and underachievement.
+* ✅ Avoid statements such as "I'll try it" or "It's not working," which reveal a testing attitude rather than a firm commitment.
